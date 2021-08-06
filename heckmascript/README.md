@@ -1,0 +1,1 @@
+August 6, 2021, at Pittsburgh TechFest. Recording here: https://www.youtube.com/watch?v=EwiqnYAle8g&list=PLbbanFptQWaITwoerr2X5vExl2RdAbNG2&index=9
